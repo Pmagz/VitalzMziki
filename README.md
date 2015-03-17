@@ -1,2 +1,2 @@
-# VitalzMziki
-Online Stream of Club Mixes and Radio Stations Based in Kenya
+# VitalzSoftz Dunda
+The Online Stream of Live Club Mixes, Events and Cool Radio Stations in Kenya.
